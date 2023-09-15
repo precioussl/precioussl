@@ -4,5 +4,5 @@
 - 💞️ I’m looking to collaborate on frontend projects
 - 📫 You can reach me
 - ogunkoyapreciouss@gmail.com
-- https://twitter.com/purple_sum_?s=20
+- https://twitter.com/prexhh_
 
